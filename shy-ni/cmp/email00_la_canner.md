@@ -1,14 +1,16 @@
 *note: A -> la connasse,  C1 -> mon ami psy,  C2 -> La seule pote en commun avec la connasse*  
 
 PS13 : Va te faire foutre
-Bonjour Docteur, (cet email, par exemple, commence comme ca)
+
+Bonjour Docteur, (cet email, par exemple, commence comme ca)  
 *en reference au dernier email de A, qui se plaignait que je commencais sans dire bonjour*  
 
-A et B (dont je suis client) sont en copie  
+A est en copie  
 
 Issu du [prompt](./00Lacan_et_la_therapie.gpt.md)  
 
-“Qu’est-ce que je donne / perds dans le rapport à l’Autre ?” semble être clef
+## “Ce que je donne / perds dans le rapport à l’Autre semble être clef
+
 Point de jonction MTC ↔ Lacan  
 
     Les deux systèmes considèrent que sans contention (vaisseaux gouverneurs en MTC, structure symbolique en psychanalyse), la perte devient irréversible et épuise le sujet  
