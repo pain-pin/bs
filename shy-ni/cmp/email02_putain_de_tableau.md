@@ -92,21 +92,27 @@ note:
 Au festoche:
 
     On m'a envoye un gorille
-    Peut etre A, mais salement maquillee (vraiment de pire en pire)
-    J'associais A a un compte publiant des ovnis
+    Peut etre A, mais salement maquillee
+    (C'est decidement une passion de me ravager)
+    J'associais A a un compte publiant des ovnis (Mel)
     Grosse senssation de mort imminente
     MajDi avait acces a mon telephone (et "sans" me connaitre, trouvait normal que j'aille mal)
     Un autre etait hacke aussi
-    Enorme contre-soiree juste en facilement
+    Enorme contre-soiree juste en face
     Certain que j'aurais pu avoir une petite pute tres sympa
-    Tellement ravagé qu'une psy de prison trouvait qu'elle ne voyait des comme moi
-    Tres provoqué globalement
-    Beaucoup dormis, trop pour un festival
+    (me connait "par coeur", me met bien, un copain triste et se laisse approcher par d'autres...)
+    Tellement ravagé qu'une psy de prison trouvait qu'elle en voyait souvent des comme moi
+    Et fera plusieurs fois allusion que je la baiserais bien
+    (Je soutenais des prisonnier, j'aime la musique, les rousses, la musique, etc...
+    Interets commun malgres une d'etat
+    Je n'ai plus le droit meme d'etre simplement attire que je suis deja un violeur)
+    Tres provoqué globalement, ostensiblement
+    Beaucoup dormi, trop pour un festival
     En etat de psychose
     Le monde dans lequel je ne butte pas A n'existe plus
     Je suis du genre a offrir ce que les gens veulent
     Moi...
 
     Des pensees toujours plus morbide depuis
-    Mais ca doit etre marrant
+    Avant j'etais marrant
 *
