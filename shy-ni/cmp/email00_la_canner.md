@@ -24,15 +24,18 @@ Contention symbolique
 
     Dans les deux cas, sans système de retenue et circulation interne, l’énergie/jouissance s’échappe vers le bas et ne remonte plus → le sujet se vide.  
 
-2. Traitement selon Lacan – Restaurer la structure symbolique
+Traitement selon Lacan – Restaurer la structure symbolique
 
-    Repérage du signifiant maître qui tenait la jouissance et qui a sauté ou s’est affaibli. -> mon entourage m'aime moins depuis que je péterais bien les dents de C2 -> A  
+    Repérage du signifiant maître qui tenait la jouissance et qui a sauté ou s’est affaibli.
+        > mon entourage m'aime moins depuis que je péterais bien les dents de C2
+            > A
     Réarticulation par la parole : remettre ce signifiant en lien avec le reste de la chaîne symbolique.  
     Scansions (coupures) pour créer un rythme et reconstituer la “membrane” symbolique.  
-    Éviter toute interprétation qui précipiterait une nouvelle effraction de jouissance. -> C1 & C2 -> A  
+    Éviter toute interprétation qui précipiterait une nouvelle effraction de jouissance.  
+            > C1 & C2  
+                > A  
     S’appuyer sur le transfert pour stabiliser le lien au langage et à l’Autre. 🖕( •_• ) 🖕  
-
-    Objectif : que l’énergie et la jouissance circulent en boucle interne, plutôt que de se déverser vers l’extérieur de manière incontrôlée.  
+    Objectif : que l’énergie et la jouissance circulent en boucle interne, plutôt que de se déverser vers l’extérieur de manière incontrôlée.
 
 
 Je suis poillu, avec un petit perimetre cranien et une ostheoporose  
