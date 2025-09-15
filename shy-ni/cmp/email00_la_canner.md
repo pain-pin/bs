@@ -1,7 +1,7 @@
-***note: A -> la connasse, C1 -> mon ami psy, C2 -> La seule pote en commun avec la connasse ***
+*note: A -> la connasse,  C1 -> mon ami psy,  C2 -> La seule pote en commun avec la connasse*  
 PS13 : Va te faire foutre
 Bonjour Docteur, (cet email, par exemple, commence comme ca)
-*** en reference au dernier email de A, qui se plaignait que je commencais sans dire bonjour ***
+* en reference au dernier email de A, qui se plaignait que je commencais sans dire bonjour*  
 
 A et B (dont je suis client) sont en copie
 
@@ -65,10 +65,10 @@ Pas certains que l'humanité se peuple de gentils comme ca en tout cas
 J'ai beau avoir Anne Sylvestre comme reference, la manière importera peu tant mon raisonnement devient psychopathique avec les années
 A en a juste rien a foutre après m'avoir déglingué sans intention, elle n'a rien fait et je suis une sombre merde, on est pourtant d'accord
 Au plus tendre on m'a déjà expliqué en quoi ses méthodes auraient fait peter les plombs de "n'importe qui" (au passage: pas une therapeute ne m'a proposé ce point de vue)
-***note: en a-t-elle rien a foutre ? Le monde dans lequel je ne la butte pas n'existe plus***
+*note: en a-t-elle rien a foutre ? Le monde dans lequel je ne la butte pas n'existe plus*
 
 
-Mon profils publique sera plus tendre si vous voulez savoir/vous souvenir qui je suis, aussi : (***censured***)
+Mon profils publique sera plus tendre si vous voulez savoir/vous souvenir qui je suis, aussi : (*censured*)
 
 Je tire souvent le Yi Ching et Non seulement vous êtes tombée sur "l’épousée" (a la question "si je déclenche") mais mon infirmiere aussi ("si je me fais suivre")
 "Il est conseillé de ne rien entreprendre"
