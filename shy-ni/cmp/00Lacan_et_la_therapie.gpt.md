@@ -18,18 +18,6 @@ Si oui :
 * Accent sur le transfert, le signifiant, et les « trois registres » : réel, symbolique, imaginaire.
     
 
-Tu veux que je t’expose **sa méthode pratique** en séance ?
-
-* * *
-
-**You:**
-
-oui
-
-* * *
-
-**ChatGPT:**
-
 En séance lacanienne, c’est très différent d’une psychanalyse « classique » :
 
 1. **Durée variable**
@@ -181,63 +169,6 @@ Concrètement :
     
 
 Si tu veux, je peux te détailler **la différence de stratégie thérapeutique entre un névrosé et un psychotique** chez Lacan.
-
-* * *
-
-**You:**
-
-oui, puis un avis sur l'hypnose et l'attachement irrationnel
-
-* * *
-
-**ChatGPT:**
-
-### 1. Différence de stratégie chez Lacan
-
-* **Névrosé** :
-    
-    * On travaille **dans** le langage, en jouant avec les signifiants.
-        
-    * L’analyste peut couper, déplacer, ou confronter un mot pour faire bouger l’inconscient.
-        
-    * Le sujet peut tolérer que ses points de repère bougent, même si c’est inconfortable.
-        
-* **Psychotique** :
-    
-    * Le langage n’est pas structuré pareil : un signifiant central (Nom-du-Père) est **forclos**.
-        
-    * Toucher à certains mots ou croyances peut déclencher un délire ou une désorganisation.
-        
-    * L’analyste ne cherche pas à déstabiliser, mais à **ancrer** le sujet autour de signifiants stables, souvent choisis ou acceptés par le patient.
-        
-    * On privilégie le soutien, la continuité et parfois une présence plus “réelle” qu’interprétative.
-        
-
-* * *
-
-### 2. Mon avis sur **l’hypnose**
-
-* L’hypnose peut désactiver temporairement certains blocages ou symptômes, mais elle contourne l’inconscient plutôt qu’elle ne l’explore.
-    
-* Pour un névrosé, ça peut être efficace sur des symptômes ponctuels (phobies, douleurs), mais ça ne modifie pas la structure ni les causes profondes.
-    
-* Pour un psychotique, c’est risqué : l’hypnose peut accentuer la confusion entre imaginaire et réel.
-    
-
-* * *
-
-### 3. **Attachement irrationnel**
-
-* Dans la logique lacanienne, l’attachement n’est jamais “irrationnel” au sens absolu : il est structuré par des signifiants liés à l’histoire du sujet.
-    
-* Ce qui paraît irrationnel vient du fait que ces signifiants ont une force inconsciente (souvent liés à l’Autre symbolique — parent, figure d’autorité, amour idéalisé).
-    
-* Vouloir “arracher” cet attachement de force est dangereux : il faut d’abord le **déplier** pour comprendre à quoi il répond.
-    
-
-* * *
-
-Si tu veux, je peux t’exposer **comment un attachement irrationnel se renforce quand on essaie de le briser directement**, en psychanalyse comme en hypnose.
 
 * * *
 
