@@ -42,20 +42,23 @@ Je suis a ~5 mg/jour en ce moment entre quelques jours de sevrage au moins mensu
 Je vais de points de non retours en points de non retours  
 
 Petit rappel  
-C1 -> C2 -> A  
-L'entourage de C1 qui représentait 2/3 de mon cercle  
-C2 est une personnalité plus publique, avec uniquement des liens faibles mais nombreux  
 
-C1 a perdu 3,5 L de sang dans son accouchement recent, j'ai pas franchement eu de nouvelles et n'aime peu/plus grand monde dans ces conditions  
-Son entourage répondrait, mais :  
-    elle préfère sa vie sans moi (encore une relation non réglée)  
-    refoule tout a l'hypnose  
-    me teste  
-        sans répondre a mes questions  
+    C1 -> C2 -> A  
+        L'entourage de C1 qui représentait 2/3 de mon cercle  
+        C2 est une personnalité plus publique, avec uniquement des liens faibles mais nombreux  
+
+    C1 a perdu 3,5 L de sang dans son accouchement recent, j'ai pas franchement eu de nouvelles et n'aime peu/plus grand monde dans ces conditions  
+
+    Son entourage répondrait, mais :
+        elle préfère sa vie sans moi (encore une relation non réglée)  
+        refoule tout a l'hypnose  
+        me teste  
+            sans répondre a mes questions  
                 (lorsqu'elle m'invite a les poser)  
-    nie ses propres remarques  
-je préfère lui foutre une paix qu'elle ne trouve pas (aussi a tout foutre sous le tapis)  
+        nie ses propres remarques
 
+
+Je préfère lui foutre une paix qu'elle ne trouve pas (aussi a tout foutre sous le tapis)  
   
 Je projette sincèrement de retirer a C2 son ineffaçable sourire, et sa satisfaction a me voir humilié  
 Un comportement étonnant pour quelqu'un qui n'est pas une connasse.  
