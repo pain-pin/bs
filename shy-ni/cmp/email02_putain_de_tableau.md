@@ -91,28 +91,34 @@ A n'est pas destinataire, je vous laisse une censure ou le choix de la transmiss
 note:
 Au festoche:
 
-    On m'a envoye un gorille
-    Peut etre A, mais salement maquillee
-    (C'est decidement une passion de me ravager)
-    J'associais A a un compte publiant des ovnis (Mel)
-    Grosse senssation de mort imminente
-    MajDi avait acces a mon telephone (et "sans" me connaitre, trouvait normal que j'aille mal)
-    Un autre etait hacke aussi
-    Enorme contre-soiree juste en face
-    Certain que j'aurais pu avoir une petite pute tres sympa
-    (me connait "par coeur", me met bien, un copain triste et se laisse approcher par d'autres...)
-    Tellement ravagé qu'une psy de prison trouvait qu'elle en voyait souvent des comme moi
-    Et fera plusieurs fois allusion que je la baiserais bien
-    (Je soutenais des prisonnier, j'aime la musique, les rousses, la musique, etc...
-    Interets commun malgres une d'etat
-    Je n'ai plus le droit meme d'etre simplement attire que je suis deja un violeur)
-    Tres provoqué globalement, ostensiblement
-    Beaucoup dormi, trop pour un festival
-    En etat de psychose
-    Le monde dans lequel je ne butte pas A n'existe plus
-    Je suis du genre a offrir ce que les gens veulent
-    Moi...
+    On m'a envoye un gorille  
+        Peut etre A, mais salement maquillee
+        Non reconnaissable
+            (C'est decidement une passion de me ravager)  
+    J'associais A a un compte publiant des ovnis (https://bsky.app/profile/melan.bsky.social)  
+        Qui m'a demmandé de faire une fata-liste de 110 personnes  
+            Pour la fin du monde
+        Grosse senssation de mort imminente  
+        Au point d'appeller ma mere
+        Lui dire aue je l'aime
+            Un peu forcé qd meme, une sensation de mensonge sur le moment
+    MajDi avait acces a mon telephone (et "sans" me connaitre, trouvait normal que j'aille mal)  
+    Un autre etait hacke aussi  
+    Enorme contre-soiree juste en face  
+    Certain que j'aurais pu avoir une petite pute tres sympa  
+    (me connait "par coeur", me met bien, un copain triste et se laisse approcher par d'autres...)  
+    Tellement ravagé qu'une psy de prison trouvait qu'elle en voyait souvent des comme moi  
+        Et fera plusieurs fois allusion que je la baiserais bien  
+        Je soutenais des prisonnier, j'aime la musique, les rousses, la musique, etc...  
+        Interets commun malgres mon état ravagé  
+        Je n'ai plus le droit meme d'etre simplement attire que je suis deja un violeur)  
+    Tres provoqué globalement, ostensiblement  
+        Cécile, et "l'attente" au I ching...
+    Beaucoup dormi, trop pour un festival  
+    En etat de psychose  
+    Le monde dans lequel je ne butte pas A n'existe plus  
+    Je suis du genre a offrir ce que les gens veulent  
 
-    Des pensees toujours plus morbide depuis
-    Avant j'etais marrant
+    Des pensees toujours plus morbide depuis  
+    Avant j'etais marrant  
 *
