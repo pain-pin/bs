@@ -1,7 +1,8 @@
 Juste au cas ou :
 
-Si on fait vivre a l'obsessionnel une date anniversaire, (usant d'autres symboles) ou la schizo se fait enculer par un ami de l'obsessionnel ?
-ChatGPT a dit :
+Si on fait vivre a l'obsessionnel une date anniversaire, (usant d'autres symboles) ou  
+la schizo se fait enculer par un ami de l'obsessionnel ?
+ChatGPT a dit :  
 
 Techniquement, dans un tel scénario :
 
