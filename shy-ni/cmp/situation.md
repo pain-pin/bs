@@ -22,13 +22,17 @@ Une femme dont j'etais dingue
 S'est tapee une orgie juste au dessus de moi  
 Ses potes et les miens se fouttant de ma gueule :  
 Usage du symbolique a outrance (reve, date anniversaire, Maria qui se presentait presque prophetique...)  
-Un "Arthur" se faisant passer pour un clodo  
-(Je ne comprend toujours pas pourquoi "j'ai jamais aussi bien investi 50 balles..")  
-La sensation d'avoir ete drogue aussi (sans etre du genre a me plaindre de cela)  
 
-Ceci,  
-Juste apres un "compte rendu de consultation"  
-Invite a me projeter Asperger (avec un "mental d'enfant de 3-4 ans max")  
+    Un "Arthur" se faisant passer pour un clodo  
+    (Je ne comprend toujours pas pourquoi "j'ai jamais aussi bien investi 50 balles..")  
+    La sensation d'avoir ete drogue aussi (sans etre du genre a me plaindre de cela)  
+
+Ceci,
+
+    Juste apres un "compte rendu de consultation"  
+    Invite a me projeter Asperger  
+        spoiler alerte: avec un "mental d'enfant de 3-4 ans max"  
+  
 Que le psychiatre presentait comme diagnostique  
 Se payant aussi ma tete :  
 "C'est suffisant, vos amis racontent vraiment n'importe quoi"  
@@ -42,18 +46,17 @@ M'a fait monter en psychose les jours suivant
 D'autres, pas meme present  
 Me parlent a la 3eme personne:  
 "Il n'est pas au courant  
-Bref tous au courant sauf moi...  
+S'en suivra un Trueman show de plusieurs annees
 
 J'aurais aime pouvoir verbaliser cela assez vite  
-5 ans, sans pouvoir comprendre, cretin de cerveau  
 L'oppositions a toutes mes demmandes de clarification  
 Par craintre de chagriner pour une enculade  
-est peut etre ce qui m'a le plus flingue  
+Est peut etre ce qui m'a le plus flingue  
 
 Et tant de monde pour me prouver a quel point je suis une merde  
 depuis que me dois d'en etre une...  
 
-Je me fais trainner et insulter depuis que j'ai renconte A  
+Je me fais trainner et insulter depuis que j'ai renconte Mel  
 Deja ayant du me larguer tout seul...  
 
 Elle m'avait deja flingue avant cela  
@@ -81,15 +84,14 @@ Encore un truc que je ferai pour elle
 Et qui se fera traiter de Nazi dans tout ca ?  
 
 Bref: enferme dans un systeme devenu tres ferme et complexe  
-Hospitalise pour desorganistaion de la pensee (un coup de fil a ce moment aurait ete "cool")
+Hospitalise pour desorganistaion de la pensee  
+(un coup de fil a ce moment aurait ete "cool")
 
 Encore aujourd'hui a vrai dire...
-
 
 Quelques articles reguliers pour faire comprendre aux schizos
 
 Comment ne pas flinguer des vies
-
 
 Ca serait sympa, parce que j'en ai vraiment plein le cul d'etre un cobaye
 
