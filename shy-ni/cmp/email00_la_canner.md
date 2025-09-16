@@ -13,7 +13,8 @@ Issu du [prompt](./00Lacan_et_la_therapie.gpt.md)
 
 Point de jonction MTC ↔ Lacan  
 
-    Les deux systèmes considèrent que sans contention (vaisseaux gouverneurs en MTC, structure symbolique en psychanalyse), la perte devient irréversible et épuise le sujet  
+    Les deux systèmes considèrent que sans contention (vaisseaux gouverneurs en MTC, structure symbolique en psychanalyse),  
+    la perte devient irréversible et épuise le sujet  
 
 Contention symbolique
 
@@ -22,7 +23,8 @@ Contention symbolique
         soit une chute de tonus psychique (dépression, inhibition).  
         Sans réarticulation symbolique, la perte devient structurelle et l’épuisement psychique s’installe.  
 
-    Dans les deux cas, sans système de retenue et circulation interne, l’énergie/jouissance s’échappe vers le bas et ne remonte plus → le sujet se vide.  
+    Dans les deux cas, sans système de retenue et circulation interne,  
+    l’énergie/jouissance s’échappe vers le bas et ne remonte plus → le sujet se vide.  
 
 Traitement selon Lacan – Restaurer la structure symbolique
 
@@ -70,15 +72,19 @@ Un comportement étonnant pour quelqu'un qui n'est pas une connasse.
 Je ne comprend toujours pas ce qui est "bien fait pour moi"  
 Pas certains que l'humanité se peuple de gentils comme ca en tout cas  
   
-J'ai beau avoir Anne Sylvestre comme reference, la manière importera peu tant mon raisonnement devient psychopathique avec les années  
-A en a juste rien a foutre après m'avoir déglingué sans intention, elle n'a rien fait et je suis une sombre merde, on est pourtant d'accord  
-Au plus tendre on m'a déjà expliqué en quoi ses méthodes auraient fait peter les plombs de "n'importe qui" (au passage: pas une therapeute ne m'a proposé ce point de vue)  
+J'ai beau avoir Anne Sylvestre comme reference,  
+la manière importera peu tant mon raisonnement devient psychopathique avec les années  
+A en a juste rien a foutre après m'avoir déglingué sans intention,  
+elle n'a rien fait et je suis une sombre merde, on est pourtant d'accord  
+Au plus tendre on m'a déjà expliqué en quoi ses méthodes auraient fait peter les plombs de "n'importe qui"  
+(au passage: pas une therapeute ne m'a proposé ce point de vue)  
 *note: en a-t-elle rien a foutre ? Le monde dans lequel je ne la butte pas n'existe plus*  
   
   
 Mon profils publique sera plus tendre si vous voulez savoir/vous souvenir qui je suis, aussi : (*censured*)  
   
-Je tire souvent le Yi Ching et Non seulement vous êtes tombée sur "l’épousée" (a la question "si je déclenche") mais mon infirmiere aussi ("si je me fais suivre")  
+Je tire souvent le Yi Ching et Non seulement vous êtes tombée sur "l’épousée" (a la question "si je déclenche")  
+mais mon infirmiere aussi ("si je me fais suivre")  
 "Il est conseillé de ne rien entreprendre"  
 (pour info il 1 chance sur 4096 d'avoir les memes hexagrammes d’affilés quand meme...)  
   
