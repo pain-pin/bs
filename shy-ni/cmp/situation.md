@@ -5,7 +5,7 @@ computer
 
 ---
 
-2025/09/14/bsky/psy/00_gpt_appelle_france_suicide.md
+2025/09/14/bsky/psy/00_gpt_appelle_france_suicide.md -> je souhaitais juste ajouter les accents a ce texte...
 -
 
 8eme psychiatre en 5 ans  
@@ -94,5 +94,3 @@ Quelques articles reguliers pour faire comprendre aux schizos
 Comment ne pas flinguer des vies
 
 Ca serait sympa, parce que j'en ai vraiment plein le cul d'etre un cobaye
-
-
