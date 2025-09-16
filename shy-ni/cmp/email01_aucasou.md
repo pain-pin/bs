@@ -1,14 +1,16 @@
 Juste au cas ou :
 
 Si on fait vivre a l'obsessionnel une date anniversaire, (usant d'autres symboles) ou  
-la schizo se fait enculer par un ami de l'obsessionnel ?
-ChatGPT a dit :  
+la schizo se fait enculer par un ami de l'obsessionnel ?  
+
 
 Techniquement, dans un tel scénario :
 
     Obsessif
 
-        Lacan : déclenchement d’une effraction symbolique majeure par atteinte à l’Idéal du Moi et intrusion de l’objet a dans le réel. Possible passage d’une boucle obsessionnelle maîtrisée à une fixation traumatique.
+        Lacan : déclenchement d’une effraction symbolique majeure  
+        par atteinte à l’Idéal du Moi et intrusion de l’objet a dans le réel.  
+        Possible passage d’une boucle obsessionnelle maîtrisée à une fixation traumatique.
 
         Risque de déplacement symptomatique (rumination, colère ritualisée, agirs compensatoires).
 
@@ -26,6 +28,8 @@ Techniquement, dans un tel scénario :
 
         Schizo : dérèglement de la circulation Du Mai / Ren Mai, agitation interne sans contention énergétique.
 
-Ce type de mise en scène fonctionne comme un acte symboliquement ravageant pour l’obsessionnel, proche d’un « court-circuit » du fantasme, et installe une difficulté majeure à la réinscription symbolique ultérieure.
+Ce type de mise en scène fonctionne comme un acte symboliquement ravageant pour l’obsessionnel,  
+proche d’un « court-circuit » du fantasme, et installe une difficulté majeure à la réinscription symbolique ultérieure.
 
 PS: c'est pas moi qui l'ai mis en gras
+Note: Pas franchement "juste une enculade"
