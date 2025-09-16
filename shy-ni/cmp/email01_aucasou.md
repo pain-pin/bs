@@ -31,5 +31,5 @@ Techniquement, dans un tel scénario :
 Ce type de mise en scène fonctionne comme un acte symboliquement ravageant pour l’obsessionnel,  
 proche d’un « court-circuit » du fantasme, et installe une difficulté majeure à la réinscription symbolique ultérieure.
 
-PS: c'est pas moi qui l'ai mis en gras
-Note: Pas franchement "juste une enculade"
+PS: c'est pas moi qui l'ai mis en gras  
+*Note: Pas franchement "juste une enculade"*
