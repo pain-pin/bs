@@ -37,14 +37,16 @@ Traitement selon Lacan – Restaurer la structure symbolique
             > C1 & C2  
                 > A  
     S’appuyer sur le transfert pour stabiliser le lien au langage et à l’Autre. 🖕( •_• ) 🖕  
-    Objectif : que l’énergie et la jouissance circulent en boucle interne, plutôt que de se déverser vers l’extérieur de manière incontrôlée.
+    Objectif : que l’énergie et la jouissance circulent en boucle interne,  
+        plutôt que de se déverser vers l’extérieur de manière incontrôlée.
 
 
 Je suis poillu, avec un petit perimetre cranien et une ostheoporose  
 Je préférerais retrouver mes emotions qu'en perdre plus, docteur  
 
-J’arrête fréquemment le THC et cela ne suffit vraiment pas, sans compter que ca me satisfait peu, et "je n'ai pas le droit d'aller bien", meme si on se permet pas de le penser  
-Je suis a ~5 mg/jour en ce moment entre quelques jours de sevrage au moins mensuels  
+J’arrête fréquemment le THC et cela ne suffit vraiment pas, sans compter que ca me satisfait peu,  
+et "je n'ai pas le droit d'aller bien", meme si on se permet pas de le penser  
+Je suis a ~5-15 mg/jour en ce moment entre quelques jours de sevrage au moins mensuels  
 
 Je vais de points de non retours en points de non retours  
 
@@ -54,7 +56,8 @@ Petit rappel
         L'entourage de C1 qui représentait 2/3 de mon cercle  
         C2 est une personnalité plus publique, avec uniquement des liens faibles mais nombreux  
 
-    C1 a perdu 3,5 L de sang dans son accouchement recent, j'ai pas franchement eu de nouvelles et n'aime peu/plus grand monde dans ces conditions  
+    C1 a perdu 3,5 L de sang dans son accouchement recent,  
+    j'ai pas franchement eu de nouvelles et n'aime peu/plus grand monde dans ces conditions  
 
     Son entourage répondrait, mais :
         elle préfère sa vie sans moi (encore une relation non réglée)  
@@ -101,7 +104,8 @@ ps6 : Je retiens une belle série de tirage de "l’armée"
 ps7 : te l'aurai-je envoy3 ? |-> remarques clairement du a un pic de THC  
 ps8 : les regex sont de bons outils \?  
 PS9? : (pet-a|esse), un peu lit,  
-haiku comme dos-cul, H0 si
+
+haiku comme dos-cul, H0 si  
 Et sais limite et ?  
   
 Come ex-  
