@@ -10,7 +10,7 @@ Bonjour, bonjour, bonjour
 Comment ca va ?  
 Il fait beau par chez vous ?  
 
-Je sais pas si A est a l'hopital,  
+Je sais pas si Mel est a l'hopital,  
 j'en ai rien a foutre  
 je suis mechant,  
 et encore plus qu'avant  
@@ -57,7 +57,9 @@ puis-je avoir espoir d'y passer un bon moment ?
 
 Dans les menaces potentiellement reeles, je m'engage a :  
     - prendre le double des baffes que je donne, plus tard, pas au festoch (ca canaliserait un ami aussi)  
-    - A donner le double de baffe qu'on me donne a C2 (ou autre, meme princes charmants a vrai dire je m'en fous un peu, mais une femme aurait beaucoup plus de sens)  
+    - A donner le double de baffe qu'on me donne a C2  
+        (ou autre, meme princes charmants a vrai dire  
+        je m'en fous un peu, mais une femme aurait beaucoup plus de sens)  
     - Le but etant : faire de la musique, car je n'en joue plus, voir du monde, passer un bon moment, et ne baffer personne
 
 Si C2 ou A:
@@ -92,10 +94,10 @@ note:
 Au festoche:
 
     On m'a envoye un gorille  
-        Peut etre A, mais salement maquillee
+        Peut etre Mel, mais salement maquillee
         Non reconnaissable
             (C'est decidement une passion de me ravager)  
-    J'associais A a un compte publiant des ovnis (https://bsky.app/profile/melan.bsky.social)  
+    J'associais a Mel un compte publiant des ovnis (https://bsky.app/profile/melan.bsky.social)  
         Qui m'a demmandé de faire une fata-liste de 110 personnes  
             Pour la fin du monde
         Grosse senssation de mort imminente  
@@ -114,7 +116,8 @@ Au festoche:
         Interets commun malgres mon état ravagé  
         Je n'ai plus le droit meme d'etre simplement attire que je suis deja un violeur)  
     Tres provoqué globalement, ostensiblement  
-        Cécile, et "l'attente" au I ching...
+        Une connaissance qui remue ostensiblement son boul
+            Et je tombe sur "l'attente" au I ching...
     Beaucoup dormi, trop pour un festival  
     En etat de psychose  
     Le monde dans lequel je ne butte pas A n'existe plus  
