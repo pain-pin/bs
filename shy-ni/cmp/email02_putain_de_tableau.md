@@ -56,7 +56,7 @@ la requete a quelque chose d'assez urgent
 puis-je avoir espoir d'y passer un bon moment ?
 
 Dans les menaces potentiellement reeles, je m'engage a :  
-    - prendre le double des baffes que je donne, plus tard, pas au tziga (ca canaliserai un ami aussi)  
+    - prendre le double des baffes que je donne, plus tard, pas au festoch (ca canaliserait un ami aussi)  
     - A donner le double de baffe qu'on me donne a C2 (ou autre, meme princes charmants a vrai dire je m'en fous un peu, mais une femme aurait beaucoup plus de sens)  
     - Le but etant : faire de la musique, car je n'en joue plus, voir du monde, passer un bon moment, et ne baffer personne
 
@@ -102,7 +102,8 @@ Au festoche:
         Au point d'appeller ma mere
         Lui dire aue je l'aime
             Un peu forcé qd meme, une sensation de mensonge sur le moment
-    MajDi avait acces a mon telephone (et "sans" me connaitre, trouvait normal que j'aille mal)  
+    MajDi (https://www.facebook.com/majdi.sahnoun.1) avait acces a mon telephone  
+        et sans me connaitre, trouvait normal que j'aille mal  
     Un autre etait hacke aussi  
     Enorme contre-soiree juste en face  
     Certain que j'aurais pu avoir une petite pute tres sympa  
