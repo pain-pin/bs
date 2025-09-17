@@ -85,6 +85,11 @@ De supposer que j'ai pu l'enculer par inadvertance
         J'ai connu une femme, qui s'etait trompee
         N'ai jamais viole   
         Meme en y etant "invite"
+        J'avais verbalise a C, avant #MeeToo
+        Avoir colle une main au cul
+        Pour simplement ne pas avoir fait l'effort de retirerer mes mais a une soiree de debauche
+        PLUTOT GENTIL GARCON QD MEME
+        COMMENT AVEZ VOUS OUBLIE QUI JE SUIS
 
 Ca n'aurait pas son importance  
 Si d'autres ne se battaient pas  
