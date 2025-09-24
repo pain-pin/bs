@@ -51,7 +51,7 @@ J'ai pas envie de vivre d'allocs handicape
 
 Mon cortex prefrontal a besoin de vacances  
 J'ai jamais eu de toupet  
-Il y a un [festoch](shy-ni/scenes/tsiga.md) important beaucoup de contacts anciens  
+Il y a un [festoch](../scenes/tsiga.md) important beaucoup de contacts anciens  
 la requete a quelque chose d'assez urgent  
 puis-je avoir espoir d'y passer un bon moment ?
 
