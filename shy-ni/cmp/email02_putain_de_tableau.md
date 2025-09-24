@@ -10,7 +10,7 @@ Bonjour, bonjour, bonjour
 Comment ca va ?  
 Il fait beau par chez vous ?  
 
-Je sais pas si Mel est a l'hopital,  
+Je sais pas si Mel est a l'hopital, (-> je suppose aussi qu'elle y travaille)  
 j'en ai rien a foutre  
 je suis mechant,  
 et encore plus qu'avant  
