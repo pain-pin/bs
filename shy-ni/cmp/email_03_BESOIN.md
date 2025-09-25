@@ -11,8 +11,7 @@ Pour ce qui est de reorganiser des idees
 
 ELLE ME FLINGUE
 
-Quelques notes desorganisees ajoutees a la fin de cet article:  
-https://github.com/pain-pin/bs/blob/main/shy-ni/cmp/email02_putain_de_tableau.md
+Quelques notes du [festoch](../scenes/tsiga.md):  
 
 Tirees d'une chaine plus discrete:  
 https://bsky.app/profile/shy-ni.bsky.social
