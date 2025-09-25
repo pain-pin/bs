@@ -51,7 +51,7 @@ Au festoche:
     I-maj note qu'il a un appel en absence de sa mere
       -> mort imminente  
         J'appelle la mienne pour lui dire que je l'aime  
-          Un peu forcé qd meme, une sensation de mensonge sur le moment  
+          sensation d'etre forcé
         J'entends dans le couloir des "nazis" qui se giflent  
         I-Maj avait acces a mon telephone  
           et sans me connaitre, trouvait normal que j'aille mal  
