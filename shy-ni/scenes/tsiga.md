@@ -12,11 +12,12 @@ J'associais a A un compte publiant des ovnis (https://bsky.app/profile/melan.bsk
       Sans l'avoir franchement fait expres au moment de l'ecrire)  
     Elle me demmande de faire une fata-liste de 110 personnes  
         Pour la fin du monde  
+
     Grosse senssation de mort imminente  
     Je fais ce qu'on me demmande, fidele a moi meme  
     L'algo de youtube est etrangement oriente ce soir la...  
     Et prepare mes affaires comme si un tsunami allait me tomber sur la gueule  
-    
+
 une bonne semaine avant   
   message a sa seule amie en commun  
   (seul vecteur de supposition de viol -> parfait bouc emissaire  
@@ -75,10 +76,10 @@ Au festoche:
     Tres provoqué globalement, ostensiblement  
       Une connaissance qui remue ostensiblement son boul  
           Et je tombe sur "l'attente" au I ching...  
-    M, dont je suis "l'homme de la vie" 
-      (bah ca aurait pu etre reciproque, mais trop de partenaires a la fois pour moi)  
-      Dira que c'est deja fait  
-        Fata-liste finale de 110 femmes enceintes  
+    M, dont je suis "l'homme de la vie"  
+        (woao...)  
+        Dira que "c'est deja fait"  
+            associe a la fata-liste finale de 110 femmes enceintes  
 
     Au moment de faire sortir les gens,  
       Certains craignent de partir,  
@@ -86,6 +87,7 @@ Au festoche:
       I-maj animant  
         Un cheche en guise de voile  
     En etat de psychose  
+
     On me demmandera comment se sont passe mes epreuves  
     Ou de penser a autre chose
     
@@ -109,6 +111,9 @@ Au festoche:
   Et:  
   
     Les femmes et les enfants d'abord  
+
+Je retournerais bien a l'hopital  
+Mais j'ai pas l'impression que ca changerais grand chose
 
   Mais plein le cul d'etre un cobaye  
   Fut un temps ou je riais avec les autres
