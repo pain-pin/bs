@@ -67,4 +67,4 @@ Ca a commence avec mes emails ridicules
     Que je tarde a poster  
     Mais que mes soignants ont
 
-(les meufs et leurs ragots)[ragots.md]
+[les meufs et leurs ragots](ragots.md)

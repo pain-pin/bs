@@ -5,8 +5,11 @@ computer
 
 ---
 
-2025/09/14/bsky/psy/00_gpt_appelle_france_suicide.md -> je souhaitais juste ajouter les accents a ce texte...
--
+2025/09/14/bsky/psy/00_gpt_appelle_france_suicide.md  
+
+    -> je souhaitais juste ajouter les accents a ce texte...
+
+---
 
 Synopsis:  
 
@@ -119,4 +122,4 @@ Ca fait beaucoup de choses construites sur des suppositions
 Aux dernieres nouvelles pourtant:
 "Je ne saurai pas tout"
 
-(haiku pourla route)[../haikus/situation.md]
+[haiku pourla route](../haikus/situation.md)
