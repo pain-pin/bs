@@ -95,9 +95,9 @@ Et de ne pas pouvoir comprendre
 Pourquoi je veux la butter  
 
 J'ai perdu une majorite d'amis  
-Mon raisonnement  
-Mes emotions  
-Ma memoire  
+Du raisonnement  
+Des emotions  
+Une memoire  
 Mes sens  
 
 Et qui se fait traiter de Nazi ?  
@@ -114,3 +114,9 @@ Comment ne pas flinguer des vies
 Ca serait sympa,  
 Parce qu'on partage la meme planete  
 Et que j'en ai vraiment plein le cul d'etre un cobaye
+
+Ca fait beaucoup de choses construites sur des suppositions
+Aux dernieres nouvelles pourtant:
+"Je ne saurai pas tout"
+
+(haiku pourla route)[../haikus/situation.md]

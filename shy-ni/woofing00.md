@@ -18,6 +18,8 @@ Qu'egorger les grands parents d'A serait le meilleur deal a mes yeux:
 Des anciens qui ont surement deja bien vecu  
 Ca serait presque les aider...  
 Bref, je ne sais plus quoi faire
+Complique d'etre ultra violent
+Le plus tendrement possible
 
 Je choque, mais reste entier,  
 c-a-d repondant a la demmande
@@ -40,7 +42,7 @@ J'apprend le lendemain que:
 
     Au cours de yoga,  
     Elle previens ses amies:  
-    "ca va, mais ad meme :  
+    "ca va, mais qd meme :  
     On ne le connait pas !"  
 
 Ceux ci cherchent a la joindre,  
@@ -62,50 +64,7 @@ Jusqu'au bout
 J'ai l'air con
 
 Ca a commence avec mes emails ridicules  
-Que je tarde a poster  
-Mais que mes soignants ont
+    Que je tarde a poster  
+    Mais que mes soignants ont
 
-Les meufs et leurs ragots...
-
-Je soupsonne Mel
-
-    Qui "n'avait rien compris"  
-        Une fois ou j'ai leve ses jambe  
-            Agacer de la voir tirer la gueule  
-            Dans nos rapports
-        Et ne me laissant pas me gerer comme je le demmandais:
-            LITS SEPARES
-                Je pelotte le cul meme d'un mec sinon
-
-De supposer que j'ai pu l'enculer par inadvertance
-
-    Franchement peu probable
-    Pas plus de details:
-    Il aurait fallu que je le fasse expres
-        J'ai connu une femme, qui s'etait trompee
-        N'ai jamais viole   
-        Meme en y etant "invite"
-        J'avais verbalise a C, avant #MeeToo
-        Avoir colle une main au cul
-        Pour simplement ne pas avoir fait l'effort de retirerer mes mais a une soiree de debauche
-        PLUTOT GENTIL GARCON QD MEME
-        COMMENT AVEZ VOUS OUBLIE QUI JE SUIS
-
-Ca n'aurait pas son importance  
-Si d'autres ne se battaient pas  
-Pour que dans certains cas  
-Cet acte soit reconnu comme un viol
-
-J'ai pu etre bien train3 en tout cas  
-Chauffe puis ravage
-
-    Au plaisir meme de Claire  
-        Qui m'envoie un gorille dernierement  
-        J'attend toujour qu'elle m'explique ce qui est  
-        Bien fait pour moi  
-
-De 9 personnes qui font 3000 bornes pour me voir  
-Je passe a 1 coup de fil  
-Lorsque je suis hopitalise ...  
-
-# POURQUOI ?!?
+(les meufs et leurs ragots)[ragots.md]

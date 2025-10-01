@@ -8,8 +8,7 @@ J'associais a A un compte publiant des ovnis (https://bsky.app/profile/melan.bsk
         pourtant l'impression que j'ai d'elle a moi...  
           J'aurais confirmation que je la gavais deja  
     Force d'avouer que mon pseudo etait nidio_nimettre...  
-      (je savais que je regretterai le jeu de mot  
-      Sans l'avoir franchement fait expres au moment de l'ecrire)  
+      Sans conscientiser pourquoi au moment de choisir l'orthographe  
     Elle me demmande de faire une fata-liste de 110 personnes  
         Pour la fin du monde  
 
@@ -53,14 +52,18 @@ Au festoche:
         J'appelle la mienne pour lui dire que je l'aime  
           sensation d'etre forcé
         J'entends dans le couloir des "nazis" qui se giflent  
-        I-Maj avait acces a mon telephone  
+        I-Maj avait acces a mes requetes de navigateur (au moins)  
           et sans me connaitre, trouvait normal que j'aille mal  
           Un autre avait son hackeur dans les parages
           Sensation d'etre au fond d'un puit  
 
     Enorme contre-soiree juste en face  
+        (Je ne saurai pas tout...)  
     Certain que j'aurais pu avoir une petite pute tres sympa  
-      (me connait "par coeur", me met bien, un copain triste et se laisse approcher par d'autres...)  
+      (me connait "par coeur", me met bien,  
+        un copain triste et se laisse approcher par d'autres...
+        Mais une des rare femmes
+        A m'aider comme je le demmande)  
       Un nom de deesse de la lune  
       Tatouee en reference a la memoire  
       Qui me demmande si elle est pas trop flippante  
@@ -68,16 +71,22 @@ Au festoche:
       Me demmande si je vais prier  
       Revet un pull vert au "climb max"  
     "Des clopes, t'en fumeras pas 36..."  
-    Tellement ravagé qu'une psy de prison trouvait qu'elle en voyait souvent des comme moi  
+    Tellement ravagé qu'une psy de prison trouvait  
+        qu'elle en voyait souvent des comme moi  
       Et fera plusieurs fois allusion que je la baiserais bien  
-        Je soutenais des prisonnier, j'aime la musique, les rousses, la musique, etc...  
+        Je soutenais des prisonnier, j'aime la musique,  
+            les rousses, la musique, etc...  
           Interets commun malgres mon état ravagé  
-        Je n'ai plus le droit meme d'etre simplement attire que je suis deja un violeur  
+        Je n'ai plus le droit meme d'etre simplement attire  
+            que je suis deja un violeur  
+        J'ai pourtant pas toujours eu une geule de ravage  
+            Et meme eu l'occasion de cracher  
+                dans de sacrees soupes
     Tres provoqué globalement, ostensiblement  
       Une connaissance qui remue ostensiblement son boul  
           Et je tombe sur "l'attente" au I ching...  
     M, dont je suis "l'homme de la vie"  
-        (woao...)  
+        (il s'en fallait de peu, mais c'est mort)  
         Dira que "c'est deja fait"  
             associe a la fata-liste finale de 110 femmes enceintes  
 
@@ -101,8 +110,6 @@ Au festoche:
   Des pensees toujours plus morbide depuis  
   Ca devient complique d'etre marrant  
 
-  On me dit que je ne saurais pas tout...  
-
   Le pire etant que cette sensation n'etait pas personnelle  
     Mais un minimum partagee  
     Deni ou retour a la realite ?
@@ -117,3 +124,4 @@ Mais j'ai pas l'impression que ca changerais grand chose
 
   Mais plein le cul d'etre un cobaye  
   Fut un temps ou je riais avec les autres
+
