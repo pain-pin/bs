@@ -28,14 +28,17 @@ Synopsis:
     1 an apres des emails insistants  
         Pour un contact minimum  
         Et m'eviter de peter les plombs
+    Apres avoir lu les textes sacres
+        A mon retour d'Egypte
+    (J'avoue avoir quelaues petards au compteur aussi
+        mais de la a tout mettre la dessu...)
         
     Sans ce putain de nouvel an j'irai pas si mal  
     J'aurai evite un trueman show de plusieurs années  
+        Encore que j'ai mis du temps a comprendre  
+            Que je suis vu comme violeur potentiel  
 
-    Encore que j'ai mis du temps a comprendre  
-    Que je suis vu comme violeur potentiel  
-
-Et puis il y a eu le [tsiga](../scenes/tsiga.md)
+Et puis il y a eu le [festoch](../scenes/festoch.md)
 
 
 8eme psychiatre en 5 ans  
@@ -56,7 +59,7 @@ Pour me faire payer d'etre miserable et ridicule
     (Je ne comprend toujours pas pourquoi "j'ai jamais aussi bien investi 50 balles..")  
     La sensation d'avoir ete drogue aussi
         (sans etre du genre a me plaindre de cela)  
-        note: on m'a demmande si c'etait trop au tsiga aussi...
+        note: on m'a demmande si c'etait trop au festoch aussi...
         
 Ceci,
 
@@ -80,28 +83,30 @@ S'en suivra un Trueman show de plusieurs annees
 
 J'aurais aime pouvoir verbaliser cela assez vite  
 L'oppositions a toutes mes demmandes de clarification  
-Par craintre de chagriner pour une enculade  
-Est peut etre ce qui m'a le plus flingue  
+    Par craintre de chagriner "pour une enculade ?"  
+        Je serait etonne qu'il n'y ait pas eu plus
+    Est peut etre ce qui m'a le plus flingue  
 
 Et tant de monde pour me prouver a quel point je suis une merde  
-Depuis que me dois d'en etre une  
-    Vraiment...
+    Depuis que me dois d'en etre une  
+        Vraiment...
 
 Je me fais trainner et insulter depuis que j'ai renconte A/Mel  
 
 Elle m'avait deja flingue avant cela  
-En 2 semaines seulement !  
-Et j'ai des hackeurs au cul depuis  
+    En 2 semaines seulement !  
+    Et j'ai des hackeurs au cul depuis  
 
 De ne plus etre agreable  
 Et de ne pas pouvoir comprendre  
 Pourquoi je veux la butter  
 
-J'ai perdu une majorite d'amis  
-Du raisonnement  
-Des emotions  
-Une memoire  
-Mes sens  
+J'ai perdu :
+    Une majorite d'amis  
+    Du raisonnement  
+    Des emotions  
+    Une memoire  
+    Mes sens  
 
 Et qui se fait traiter de Nazi ?  
 On se donne du mal pour que je le devienne en tout cas  
@@ -120,6 +125,9 @@ Et que j'en ai vraiment plein le cul d'etre un cobaye
 
 Ca fait beaucoup de choses construites sur des suppositions
 Aux dernieres nouvelles pourtant:
-"Je ne saurai pas tout"
+    "Je ne saurai pas tout"
+
+Et tout ca,  
+    c'est rien que dans ma tete...
 
 [haiku pourla route](../haikus/situation.md)

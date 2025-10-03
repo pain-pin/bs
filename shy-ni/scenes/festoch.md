@@ -25,7 +25,7 @@ une bonne semaine avant
       
     "Bonjour"  
     Juste au cas ou:  
-      Je vais au tsiga et t'invites a ne pas me croiser,  
+      Je vais au festoch et t'invites a ne pas me croiser,  
       et si on se croise par hasard, a tirer ta pire gueule de deteree...  
       Vous m'avez DEGLINGUE  
       Et vous me deglinguez encore a ne rien verbaliser  

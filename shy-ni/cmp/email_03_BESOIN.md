@@ -11,7 +11,7 @@ Pour ce qui est de reorganiser des idees
 
 ELLE ME FLINGUE
 
-Quelques notes du [festoch](../scenes/tsiga.md):  
+Quelques notes du [festoch](../scenes/festoch.md):  
 
 Tirees d'une chaine plus discrete:  
 https://bsky.app/profile/shy-ni.bsky.social
